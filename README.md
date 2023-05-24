@@ -1,16 +1,14 @@
-### Hi there 👋
+### Boas vindas  ao meu perfil 🖥️
+  
+  Meu nome é Nicolas
 
-<!--
-**Ice-Salocin/Ice-Salocin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+- Gosto de jogar futebol
+- Gosto muito de dormir e comer
+- E estou trabalhando em uma empresa, que creio que vai ser abençoado
 
-Here are some ideas to get you started:
+### Você pode entrar em contato comigo 📫
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- nicolasmdalomba@gmail.com **GMAIL PESSOAL**
+- socialdesingsdns.gmail.com **E-MAIL EMPRESARIAL**
+
+![descrição do GIF](https://media.giphy.com/media/LLHkw7UnvY3Kw/giphy.gif) 
