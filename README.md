@@ -16,4 +16,4 @@
 - nicolasmdalomba@gmail.com **GMAIL PESSOAL**
 - socialdesingsdns@gmail.com **E-MAIL EMPRESARIAL**
 
-![descrição do GIF](https://media.giphy.com/media/NhjgwgjbNgCek/giphy.gif) 
+![descrição do gif](https://media.giphy.com/media/fYShkq3n7c7LeQxodc/giphy.gif)
