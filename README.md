@@ -8,7 +8,7 @@
   
 ### Minha rede social do Instagram 📱
 
-- [@_nicolas_lomba](https://www.instagram.com/@neguin_10__)
+- [@neguin_10__](https://www.instagram.com/@neguin_10__)
 
 ### Você pode entrar em contato comigo 📫
 
