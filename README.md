@@ -8,11 +8,10 @@
   
 ### Minha rede social do Instagram 📱
 
-- [@_nicolas_lomba](https://www.instagram.com/@_nicolas_lomba)
+- [@_nicolas_lomba](https://www.instagram.com/@neguin_10__)
 
 ### Você pode entrar em contato comigo 📫
 
 - nicolasmdalomba@gmail.com **GMAIL PESSOAL**
-- socialdesingsdns@gmail.com **E-MAIL EMPRESARIAL**
 
 ![descrição do gif](https://media.giphy.com/media/fYShkq3n7c7LeQxodc/giphy.gif)
